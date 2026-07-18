@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HERS811022MPLRJC02
+HERS811022MPLRJC02
